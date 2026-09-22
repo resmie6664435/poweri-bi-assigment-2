@@ -1,2 +1,2 @@
 # poweri-bi-assigment-2
-https://drive.google.com/open?id=1X9ngOHeRUrMMIOnasbk1m9PyMkwCNbtM&usp=drive_fs
+https://docs.google.com/document/d/1NiSsfoaY4jzJg9XE8KyYBW4BdaNDuiwE?rtpof=true&usp=drive_fs
